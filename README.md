@@ -1,3 +1,3 @@
 # MethodeDetourage
 
-*Méthode à ajouter . . .*
+*Méthode à ajouter ° ° °*
